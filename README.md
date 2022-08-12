@@ -2,8 +2,8 @@
 
 - 👀 Brazilian, 14yo
 
-- 🌱 A little student of Python and JavaScript. Currently learning French. 
+- 🌱 A little student of Python, JavaScript/HTML. Currently learning French. 
 
 - 📫 Twitter: @lukaszord_ || Discord: lusky#8916 || Instagram: @lusca.jk (private account)
 
-- 💖 I will love to chat with you! :)
+- 💖 I will love to chat with you! <3
